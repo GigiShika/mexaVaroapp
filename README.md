@@ -1,0 +1,2 @@
+# mexaVaroapp
+Politica de Privacidad
